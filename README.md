@@ -1,2 +1,2 @@
 # savannahgrillkampala
-savannahgrillkampala.com
+https://www.savannahgrillkampala.com/
